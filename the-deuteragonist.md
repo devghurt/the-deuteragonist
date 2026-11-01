@@ -30,5 +30,6 @@ Someone was snapping their fingers in quick succession, one of the few things th
 A suspiciously human-shaped blur made its way into my peripherals. "Earth to Drew, earth to Drew-"\
 "Go away," I chided, pushing her face out of sight.\
 "Stop daydreaming, we're going to get our results soon."\
-Right, the results. My stomach started flitting restlessly, moths due breaking out of their cocoons.\ 
-My best friend, or better known as June, plopped onto her seat in a contented way, probably triumphing at her success at pissing me off.
+Right, the results. My stomach started flitting restlessly, moths due breaking out of their cocoons.\
+My best friend, or better known as June, plopped onto her seat in a contented way, probably triumphing at her success at pissing me off.\
+The bell rang, drowning out the chatter and whatever negativity was seeping into my thoughts.\
