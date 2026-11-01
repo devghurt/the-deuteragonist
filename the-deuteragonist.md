@@ -18,3 +18,17 @@ It hurt to be the only one in the room, no -- the only one in the world who unde
 This time, he doesn't disobey.
 
 ## CHAPTER 1
+I think I would spontaneously combust if I were to tell anyone of my problems.\
+*"Are you okay? You look out of it."*
+"Yeah, I'm fine. Was just nervous for the test today. Couldn't sleep well."
+It technically wouldn't be considered lying if it were just the half-truth, right? I mean, I frankly had been stressing myself out for this test the whole week.\
+"Your eyes are red and puffy, were you--?"
+"Oh, I was just really sleepy and kept rubbing my eyes. Sorry."\
+It's just it wasn't the full picture. No one would blame me for keeping some things to myself, right?\
+Right?\
+Someone was snapping their fingers in quick succession, one of the few things that got on my nerves.\
+A suspiciously human-shaped blur made its way into my peripherals. "Earth to Drew, earth to Drew-"\
+"Go away," I chided, pushing her face out of sight.\
+"Stop daydreaming, we're going to get our results soon."\
+Right, the results. My stomach started flitting restlessly, moths due breaking out of their cocoons.\ 
+My best friend, or better known as June, plopped onto her seat in a contented way, probably triumphing at her success at pissing me off.
